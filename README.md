@@ -18,6 +18,6 @@
 + **btw i like music a lot** :grinning:
 >here's my RYM accout [rateyourmusic](https://rateyourmusic.com/~AlisonHoang](https://rateyourmusic.com/~AlisonHoang))
 
- ![japanesebeautifulgirl](https://raw.githubusercontent.com/alisonhoang/pictures/refs/heads/main/komatsunanakw.jpg?token=GHSAT0AAAAAAEQCB6LQIMXJD5ZOYXXU6JAQ2XXBCPQ)
+ ![japanesebeautifulgirl](https://image.aladin.co.kr/community/myface/pt_7012361401190896.jpg)
  
  my gf :sparkling_heart:
